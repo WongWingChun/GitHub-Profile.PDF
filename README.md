@@ -1,3 +1,4 @@
+[Honeywell 黃永川聘書和AIA 公司確認信.pdf](https://github.com/user-attachments/files/33140841/Honeywell.AIA.pdf)
 [黃永川中銀存款記錄由2025年6月5日至2026年5月8日.pdf](https://github.com/user-attachments/files/33140498/2025.6.5.2026.5.8.pdf)
 [綜援檔案編號SKM-C-047661調整援助金額通知書日期2026年5月20日和中銀綜合月結單4月至6月財務報告 2026年 6月 19日.pdf](https://github.com/user-attachments/files/33140451/SKM-C-047661.2026.5.20.4.6.2026.6.19.pdf)
 # GitHub-Profile.PDF
